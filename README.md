@@ -1,4 +1,3 @@
-🚩🚩🚩🚩🚩🚩  
 ⭐️ **MAJORSTAR Auto Bot v1.4 Update - Now on Pre-Market on Bitget Exchange**
 
 🔄 **MAJOR Bot v1.4 Update:**  
